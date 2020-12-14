@@ -16,7 +16,7 @@ Auf dieser Seite möchte Weiterempfehlungs-Links von unterschiedlichen Anbietern
 - [Emmy](http://onelink.to/emmy) - Benutze 7cJa3k1v und wir bekommen beide 15 Freiminuten
 - [Tier](https://tier.page.link/pSK75) - Wir erhalten beide 2 Freischaltungen und 15 Freiminuten
 - [Lime](https://lime.bike/referral_signin/R5YTURQ) - Wir erhalten beide 5€ Fahrtguthaben
-- [Voi](https://link.voiapp.io/hxj0iHlAdcb) - Du erhählst 2,5 VOI Credits und ich 5€
+- [Voi](https://link.voiapp.io/hxj0iHlAdcb) - Du erhältst 2,5 VOI Credits und ich 5€
 - [Sixt Share](https://www.sixt.de/invite/EP1ARhmd) - Den Link verwenden und erhalten beide 60€
 
 ## Mobilfunk
