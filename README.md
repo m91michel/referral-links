@@ -11,6 +11,7 @@ Auf dieser Seite möchte Weiterempfehlungs-Links von unterschiedlichen Anbietern
 - [Crypto.com](https://crypto.com/app/byjhe4vd6c) - Wir bekommen beide $25 USD, wenn du 2500 CRO stakest.
 - [Bitwala](https://app.bitwala.com/r/MBVJ-89RF) - Wir erhalten beide 15€
 - [Pool by Cake](https://pool.cakedefi.com/#?ref=624360) - Ich erhalte 50% Referal-Bonus
+- [BlockFi](https://blockfi.com/?ref=87125bfa) - Wir bekommen beide 10€, wenn du 100€ hinterlegst.
 
 ## Mobilität
 - [Emmy](http://onelink.to/emmy) - Benutze 7cJa3k1v und wir bekommen beide 15 Freiminuten
