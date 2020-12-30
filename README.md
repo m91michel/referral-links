@@ -5,6 +5,7 @@ Auf dieser Seite möchte Weiterempfehlungs-Links von unterschiedlichen Anbietern
 - [N26](https://n26.com/r/mathiasm3438) - Benutze den code `mathiasm3438` und wir bekommen beide 15€
 - [TradeRepublik](https://ref.trade.re/9ndsz68z) - Wir erhalten beide 15€
 - [Scalable Capital](de.scalable.capital/einladung/b2f2fg) - Ich erhalte bis zu 50€ - Naja du musst dich nicht anmelden 🤷‍♂️
+- [WeltSparen](www.weltsparen.de?p=eyJzIjoiVkZqZ3JhRGVrdVNlMldKcG1LX00tUVNvMGZBIiwidiI6MSwicCI6IntcInVcIjozMDEzOTc1NyxcInZcIjoxLFwidXJsXCI6XCJodHRwczpcXFwvXFxcL3d3dy53ZWx0c3BhcmVuLmRlXFxcL2t1bmRlbi13ZXJiZW5cXFwvP3V0bV9tZWRpdW09ZW1haWwmdXRtX3NvdXJjZT10cmFuc2FjdGlvbmFsJnV0bV9jYW1wYWlnbj1tYW5kcmlsbF9kZS1yYWYtcmVjb21tZW5kYXRpb24tb2ZmZXJ0YWJsZVwiLFwiaWRcIjpcIjY1ZGY2NzA2ODBiYjRhYjhiOTU2ODE5YzU3ZWZjMjE2XCIsXCJ1cmxfaWRzXCI6W1wiNTlhYTFjNDcxZTNkZWMxNmI0YWE4OGY4MWEzYjJkYTU2YjA4NDFlNlwiXX0ifQ) - Wir bekommen beide 50€. Du musst aber 5000€ dort für 6 Monate bei einem Produkt hinterlegen.
 - [Bondora](https://bondora.com/ref/mathiasm10) - Du bekommst 5€ startguthaben und mein Bonus ist abhängig von deinem Investierten Betrag
 - [Mintos](https://www.mintos.com/de/l/ref/C60M64) - Bekommen beide eine Boni, abhängig von deinem Investierten Betrag
 - [Bitpanda](https://www.bitpanda.com/?ref=1744922665805272769) - Wir erhalten beide 10€, wenn du mind. 25€ tradest.
