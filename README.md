@@ -1,6 +1,7 @@
 # Meine Sammlung an Weiterempfehlungs-Links
-Auf dieser Seite möchte ich Weiterempfehlungs-Links von unterschiedlichen Anbietern wie N26 oder Emmy teilen, wo es für uns beide einen Bonus gibt. Wenn du dich zum Beispiel sowieso bei einen von diesen Diensten anmelden möchtest, kannst du das über meinen Link machen und kannst somit einen Bonus abstauben. Ich habe bei jedem Dienst jeweils angegeben welcher Bonus vergeben wird und letztendlich kannst du für dich entscheiden ob du diesen nutzen möchtest oder nicht. 
-Ich habe auch paar Seiten angegeben, bei denen nur ich einen Bonus erhalte. (mit 🤷‍♂️ markeiter) Diese Links kannst du verwenden, um mir etwas ❤️ zu schenken 😘
+Auf dieser Seite möchte ich Weiterempfehlungs-Links von unterschiedlichen Anbietern wie N26 oder Emmy teilen, wo es für uns beide einen Bonus gibt. Wenn du dich zum Beispiel sowieso bei einen von diesen Diensten anmelden möchtest, kannst du das über meinen Link machen und kannst somit einen Bonus abstauben. Ich habe bei jedem Dienst jeweils angegeben welcher Bonus vergeben wird und letztendlich kannst du für dich entscheiden ob du diesen nutzen möchtest oder nicht.
+
+Ich habe auch paar Seiten angegeben, bei denen nur ich einen Bonus erhalte (mit 🤷‍♂️ markiert). Diese Links musst du nur verwenden, wenn etwas ❤️ schenken möchtest 😘
 
 ## Banking
 - [N26](https://n26.com/r/mathiasm3438) - Benutze den code `mathiasm3438` und wir bekommen beide 15€
