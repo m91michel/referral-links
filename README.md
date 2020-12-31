@@ -16,6 +16,7 @@ Ich habe auch paar Seiten angegeben, bei denen nur ich einen Bonus erhalte. (mit
 - [Pool by Cake](https://pool.cakedefi.com/#?ref=624360) - Ich erhalte 50% Referal-Bonus - 🤷‍♂️
 - [BlockFi](https://blockfi.com/?ref=87125bfa) - Wir bekommen beide 10€, wenn du 100€ hinterlegst.
 - [Curve](https://www.curve.com/join#NV53K3PN) - Wir beide erhalten einen 5¢ Bonus
+
 ## Mobilität
 - [Emmy](http://onelink.to/emmy) - Benutze 7cJa3k1v und wir bekommen beide 15 Freiminuten
 - [Tier](https://tier.page.link/pSK75) - Wir erhalten beide 2 Freischaltungen und 15 Freiminuten
