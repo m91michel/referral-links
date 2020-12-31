@@ -28,5 +28,5 @@ Ich habe auch paar Seiten angegeben, bei denen nur ich einen Bonus erhalte (mit 
 ## Mobilfunk
 - [Fraenk](https://2ekq.adj.st/mgm?campaign=302199764&friend=3ZN34sFhGOqHPrpQ&adjust_t=u66g7hl&adjust_fallback=https%3A%2F%2Fwww.fraenk.de&allowReattribution=true&adj_campaign=mgm) - Über links anmelden. Ich erhalte eine 30€ Gutschrift und du bekommst 1 GB extra.
 
-
-> Hinweis: Der Bonus kann sich bei jedem Anbieter ändern und da ich die Seite in unregelmäßig abständen update, können die Angaben veraltet sein. Du kannst aber jeder Zeit auf mich zukommen :)
+## Hinweis
+Der Bonus kann sich bei jedem Anbieter ändern und da ich die Seite in unregelmäßig abständen update, können die Angaben veraltet sein. Du kannst aber jeder Zeit auf mich zukommen :)
