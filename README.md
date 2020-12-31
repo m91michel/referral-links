@@ -1,5 +1,6 @@
 # Meine Sammlung an Weiterempfehlungs-Links
-Auf dieser Seite möchte Weiterempfehlungs-Links von unterschiedlichen Anbietern wie N26 oder Emmy teilen, wo es für uns beide einen Bonus gibt. Wenn du dich zum Beispiel sowieso, bei einen von diesen Seiten anmelden möchtest, kannst du das über meinen Link machen und kannst somit einen Bonus abstauben. Ich erhalte auch einen Bonus, diesen gebe ich aber transparent an.
+Auf dieser Seite möchte ich Weiterempfehlungs-Links von unterschiedlichen Anbietern wie N26 oder Emmy teilen, wo es für uns beide einen Bonus gibt. Wenn du dich zum Beispiel sowieso bei einen von diesen Diensten anmelden möchtest, kannst du das über meinen Link machen und kannst somit einen Bonus abstauben. Ich habe bei jedem Dienst jeweils angegeben welcher Bonus vergeben wird und letztendlich kannst du für dich entscheiden ob du diesen nutzen möchtest oder nicht. 
+Ich habe auch paar Seiten angegeben, bei denen nur ich einen Bonus erhalte. Diese Links kannst du verwenden, um mir etwas ❤️ zu schenken 😘
 
 ## Banking
 - [N26](https://n26.com/r/mathiasm3438) - Benutze den code `mathiasm3438` und wir bekommen beide 15€
@@ -9,7 +10,7 @@ Auf dieser Seite möchte Weiterempfehlungs-Links von unterschiedlichen Anbietern
 - [Bondora](https://bondora.com/ref/mathiasm10) - Du bekommst 5€ startguthaben und mein Bonus ist abhängig von deinem Investierten Betrag
 - [Mintos](https://www.mintos.com/de/l/ref/C60M64) - Bekommen beide eine Boni, abhängig von deinem Investierten Betrag
 - [Bitpanda](https://www.bitpanda.com/?ref=1744922665805272769) - Wir erhalten beide 10€, wenn du mind. 25€ tradest.
-- [Bitwala](https://app.bitwala.com/r/MBVJ-89RF) - Wir erhalten beide 15€ nachdem du deinen ersten Trade machst
+- [Bitwala](https://app.bitwala.com/r/MBVJ-89RF) - Wir erhalten beide 15€ nachdem d😘😘u deinen ersten Trade machst
 - [Crypto.com](https://crypto.com/app/byjhe4vd6c) - Wir bekommen beide $25 USD, wenn du 2500 CRO stakest.
 - [Bitwala](https://app.bitwala.com/r/MBVJ-89RF) - Wir erhalten beide 15€
 - [Pool by Cake](https://pool.cakedefi.com/#?ref=624360) - Ich erhalte 50% Referal-Bonus
