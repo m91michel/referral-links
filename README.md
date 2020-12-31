@@ -9,11 +9,12 @@ Auf dieser Seite möchte Weiterempfehlungs-Links von unterschiedlichen Anbietern
 - [Bondora](https://bondora.com/ref/mathiasm10) - Du bekommst 5€ startguthaben und mein Bonus ist abhängig von deinem Investierten Betrag
 - [Mintos](https://www.mintos.com/de/l/ref/C60M64) - Bekommen beide eine Boni, abhängig von deinem Investierten Betrag
 - [Bitpanda](https://www.bitpanda.com/?ref=1744922665805272769) - Wir erhalten beide 10€, wenn du mind. 25€ tradest.
+- [Bitwala](https://app.bitwala.com/r/MBVJ-89RF) - Wir erhalten beide 15€ nachdem du deinen ersten Trade machst
 - [Crypto.com](https://crypto.com/app/byjhe4vd6c) - Wir bekommen beide $25 USD, wenn du 2500 CRO stakest.
 - [Bitwala](https://app.bitwala.com/r/MBVJ-89RF) - Wir erhalten beide 15€
 - [Pool by Cake](https://pool.cakedefi.com/#?ref=624360) - Ich erhalte 50% Referal-Bonus
 - [BlockFi](https://blockfi.com/?ref=87125bfa) - Wir bekommen beide 10€, wenn du 100€ hinterlegst.
-
+- [Curve](https://www.curve.com/join#NV53K3PN) - Wir beide erhalten einen 5¢ Bonus
 ## Mobilität
 - [Emmy](http://onelink.to/emmy) - Benutze 7cJa3k1v und wir bekommen beide 15 Freiminuten
 - [Tier](https://tier.page.link/pSK75) - Wir erhalten beide 2 Freischaltungen und 15 Freiminuten
@@ -23,4 +24,3 @@ Auf dieser Seite möchte Weiterempfehlungs-Links von unterschiedlichen Anbietern
 
 ## Mobilfunk
 - [Fraenk](https://2ekq.adj.st/mgm?campaign=302199764&friend=3ZN34sFhGOqHPrpQ&adjust_t=u66g7hl&adjust_fallback=https%3A%2F%2Fwww.fraenk.de&allowReattribution=true&adj_campaign=mgm) - Über links anmelden. Ich erhalte eine 30€ Gutschrift und du bekommst 1 GB extra.
-
