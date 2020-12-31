@@ -13,7 +13,7 @@ Ich habe auch paar Seiten angegeben, bei denen nur ich einen Bonus erhalte. (mit
 - [Bitwala](https://app.bitwala.com/r/MBVJ-89RF) - Wir erhalten beide 15€ nachdem du deinen ersten Trade machst
 - [Crypto.com](https://crypto.com/app/byjhe4vd6c) - Wir bekommen beide $25 USD, wenn du 2500 CRO stakest.
 - [Bitwala](https://app.bitwala.com/r/MBVJ-89RF) - Wir erhalten beide 15€
-- [Pool by Cake](https://pool.cakedefi.com/#?ref=624360) - Ich erhalte 50% Referal-Bonus - 🤷‍♂️
+- [Pool by Cake](https://pool.cakedefi.com/#?ref=624360) - Wir erhalten beide einen 10 USD Bonus
 - [BlockFi](https://blockfi.com/?ref=87125bfa) - Wir bekommen beide 10€, wenn du 100€ hinterlegst.
 - [Curve](https://www.curve.com/join#NV53K3PN) - Wir beide erhalten einen 5¢ Bonus
 
