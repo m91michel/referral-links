@@ -19,6 +19,7 @@ Ich habe auch paar Seiten angegeben, bei denen nur ich einen Bonus erhalte (mit 
 - [Bitwala](https://app.bitwala.com/r/MBVJ-89RF) - Wir erhalten beide 15€
 - [Pool by Cake](https://pool.cakedefi.com/#?ref=624360) - Wir erhalten beide einen 10 USD Bonus
 - [BlockFi](https://blockfi.com/?ref=87125bfa) - Wir bekommen beide 10€, wenn du 100€ hinterlegst.
+- [Coinbase](coinbase.com/join/michel_c0u?src=ios-link) - Wir erhalten beide ca. 8€ als startbonus, wenn du über 80€ tradest.
 - [Binance](https://www.binance.com/en/register?ref=S6SM0KGZ) - Wir erhalten beide 10% Commission. Komm am besten auf mich zu, um zu erfahren wie das genau funktioniert.
 ## Mobilität
 - [Emmy](http://onelink.to/emmy) - Benutze 7cJa3k1v und wir bekommen beide 15 Freiminuten
