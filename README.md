@@ -4,6 +4,7 @@ Auf dieser Seite möchte ich Weiterempfehlungs-Links von unterschiedlichen Anbie
 Ich habe auch paar Seiten angegeben, bei denen nur ich einen Bonus erhalte (mit 🤷‍♂️ markiert). Diese Links musst du nur verwenden, wenn etwas ❤️ schenken möchtest 😘
 
 ## Banking
+- [Vivid](https://vivid.money/r/mathias9MH) - Wir erhalten beide einen Bonus von 40€, sobald du für 20€ etwas gekauft hast.
 - [N26](https://n26.com/r/mathiasm3438) - Benutze den code `mathiasm3438` und wir bekommen beide 15€
 - [TradeRepublik](https://ref.trade.re/9ndsz68z) - Wir erhalten beide 15€
 - [Scalable Capital](de.scalable.capital/einladung/b2f2fg) - Ich erhalte bis zu 50€ - Naja du musst dich nicht anmelden 🤷‍♂️
